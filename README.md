@@ -1,4 +1,4 @@
-⚠  IMPORTANT DISCLAIMER
+IMPORTANT DISCLAIMER
   This project is built exclusively for educational purposes. No real money, real gambling, or financial transactions of any kind are involved. All casino games use fictional "demo credits" that hold no monetary value. The platform is designed to teach responsible gambling awareness, not to facilitate actual gambling activity
 
 
